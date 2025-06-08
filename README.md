@@ -1,5 +1,5 @@
 # Infographic_OIBSIP
-(Task 2)
+(Task 4)
 
 I've used Canva software to build the assigned task.
 I've made this on a sports theme, representing Cristiano Ronaldo's qualities(8) that makes him the greatest ever.
